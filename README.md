@@ -1,0 +1,2 @@
+# yusufun-bakkal-
+benim nbakkalım
